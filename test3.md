@@ -1,1 +1,1 @@
-moze sie uda
+może się uda
