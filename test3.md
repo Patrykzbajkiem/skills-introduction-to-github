@@ -1,0 +1,1 @@
+moze sie uda
