@@ -1,1 +1,1 @@
-tu jest druga ciekaowstka
+tu jest druga ciekawostka
